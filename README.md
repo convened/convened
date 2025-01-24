@@ -1,5 +1,3 @@
-## Contact
+## Information
 
-To reach out to me, you can contact me via Discord. My Discord username is `ifyounotballhog` 
-
-have a great day :)
+you can contact me via Discord. My Discord username is `ifyounotballhog` 
